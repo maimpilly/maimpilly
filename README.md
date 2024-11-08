@@ -2,7 +2,7 @@
 - 👀 I’m interested in the Electrical and Software Engineering aspects in the Automotive and Automation domains
 - 🌱 I’m currently learning M.Sc in Electrical Engineering
 - 💞️ I’m looking to collaborate on topics that have an impact on human lives
-- 📫 How to reach me maimpilly@gmail.com or linkedin.com/in/maimpilly
+- 📫 How to reach me linkedin.com/in/maimpilly
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: “The magic you are looking for is in the work you're avoiding”
 
